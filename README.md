@@ -20,9 +20,6 @@ As Kivotos Railways expanded its operations, it established it's own Freight Div
 
 > Disclaimer: Intro lore is not canon
 
-
-> プレム
-
 # Credits:
 - Hachi - Inspo [https://hachiiiiiiii.co]
 
